@@ -2,33 +2,12 @@
 
 
 
+if u came here this is the wrong place
 
 
 
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-also l
+video of the day:
+iframe width="560" height="315" src="https://www.youtube.com/embed/l2UDgpLz20M" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
