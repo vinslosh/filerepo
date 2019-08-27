@@ -1,4 +1,34 @@
-## welcome to my site
+## welcome to my site i fixed it dont worry
 
 
-i dont know why youre here but hi anyway
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+also l
